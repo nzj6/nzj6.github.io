@@ -14,3 +14,5 @@ B.E., Mining Engineering, Shandong University of Science and Technology, 2020—
 #### Research Interests
 Coal Mining, Mine Microseismic.
 
+#### Hobby
+Football，Swimming，Dubbing.
